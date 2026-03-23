@@ -1,1 +1,1 @@
-Uboho Othman - transitioning into software dev
+Uboho Othman - Newbie. Vibecoder. Transitioning into software dev
